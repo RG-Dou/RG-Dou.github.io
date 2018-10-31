@@ -14,8 +14,8 @@ I am a 2nd year Ph.D Student of Computer Science in National University of Singa
 
 
 
-I am a crazy fan of `Kyrie Irving` and much keen on basketball.
+I am a crazy fan of **Kyrie Irving** and much keen on basketball.
 
-Watch more and play less on some games, such as `League of Legends`, `HearthStone`,  `Overwatch`, lol.
+Watch more and play less on some games, such as **League of Legends**, **HearthStone**,  **Overwatch**, lol.
 
 Enjoy wonderful movies and American TV series. Welcome to chat with me.
